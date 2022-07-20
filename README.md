@@ -1,1 +1,1 @@
-![Alt Text]([https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif])
+![Текст](https://vk.com/s/v1/doc/BQ7axUG878qpD5u2uvxgzKyxRexV5Vg3boxD3LfqJlvOUb4euko)

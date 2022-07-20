@@ -1,1 +1,1 @@
-![Текст](https://c.tenor.com/L_ZB5LOYlZ4AAAAM/stone-casting-throw.gif?style=centerme)
+![Текст](https://c.tenor.com/dJT6gU0uSkMAAAAi/clippy-paperclip.gif)

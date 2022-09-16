@@ -1,1 +1,1 @@
-![Текст](https://i.gifer.com/cA.gif)
+![Текст](https://thumbs.gfycat.com/FlashyAgonizingDowitcher-max-1mb.gif)

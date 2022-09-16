@@ -1,1 +1,1 @@
-![Текст](https://i.gifer.com/cA.mp4)
+![Текст](https://i.gifer.com/cA.gif)

@@ -1,1 +1,1 @@
-![Текст](https://vk.com/doc431843484_594205467?hash=5lzlE8HI9PU8sh2uubtdcmL0PBfFiAQElguBtqUDG9w&dl=lBLHS5928DtaMfw54pNCeKpkr4NLvplZgCN3ctKeCjk&wnd=1&module=wall&mp4=1)
+![Текст](https://psv4.userapi.com/c848424/u375367072/docs/d2/2313c305af46/Shrek.gif?extra=jrtvcyKtq5WoNBRb-kez24ONiL-jLtWEakZIr7rR-Rm5XjcqbN1GgTMVr09TVtPTBXYEnQfxzei_CalWiQJReyFinEoOqCb1tqW0Bj4zrT2KpFmMh3-W2S9dy6IXAOoVkB4PlI0ck78-w9zG0x2wp7LExg)

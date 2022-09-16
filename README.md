@@ -1,1 +1,1 @@
-![Текст](https://i.gifer.com/Njh.mp4)
+![Текст](https://thumbs.gfycat.com/FeminineEvilHarvestmen-mobile.mp4)

@@ -1,1 +1,1 @@
-![Текст](https://thumbs.gfycat.com/FeminineEvilHarvestmen-mobile.mp4)
+![Текст](https://i.gifer.com/cA.mp4)

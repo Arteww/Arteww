@@ -1,1 +1,1 @@
-![Текст](https://thumbs.gfycat.com/FlashyAgonizingDowitcher-max-1mb.gif)
+![Текст](https://thumbs.gfycat.com/NauticalAppropriateBrahmanbull-max-1mb.gif)

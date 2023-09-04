@@ -1,1 +1,1 @@
-![Текст](https://thumbs.gfycat.com/NauticalAppropriateBrahmanbull-max-1mb.gif)
+![Текст](https://media.tenor.com/rNbZ4VsS-BQAAAAC/rick-and-morty-rick-sanchez.gif)
